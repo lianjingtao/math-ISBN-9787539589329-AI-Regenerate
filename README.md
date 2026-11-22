@@ -1,1 +1,0 @@
-# math-ISBN-9787539589329-AI-Regenerate
